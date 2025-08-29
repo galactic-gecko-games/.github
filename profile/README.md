@@ -1,2 +1,2 @@
-## Null Interactive
-Founded in 2022, Null Interactive
+## Galactic Gecko Games
+Founded in 2024, Galactic Gecko Games
